@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @chathuradhananjayaweerathunga
+- 👋 Hi, I’m @chathuraweerathunga
 - 👀 I’m interested in computer science & entrepreneurship
 - 🌱 I’m currently learning everything based on my interest
 - 💞️ I’m looking to collaborate on new ideas, new projects...etc
